@@ -2,9 +2,9 @@
 
 ✧ I'm Datakage, a SEM (Software Engineering and Management) student based in Austria. 
 
-✧ Currently I'm learning and improving my coding skills day by day - Java, C 
+✧ Currently I'm learning and improving my coding skills day by day - Java, C.
 
-✧ Interested in cyber security 
+✧ I'm interested in cyber security.
 
 ## A bit about me 
 
