@@ -8,7 +8,7 @@
 
 ## A bit about me 
 
-✧ I've got a dream to fulfill The only way to learn is by doing 🍥
+✧ I've got a dream to fulfill - the only way to learn is by doing 🍥
 
 ✧ I love cats and anime 
 
