@@ -1,4 +1,4 @@
-## Hi there (っ◔◡◔)っ 🐱
+## Hi there (˶º⤙º˶)
 
 ✧ I'm Datakage, a SEM (Software Engineering and Management) student based in Austria. 
 
