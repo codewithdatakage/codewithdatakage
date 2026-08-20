@@ -1,14 +1,14 @@
 ## Hi there 👋
 
-I'm Datakage, a SEM (Software Engineering and Management) student based in Austria. 
+✧ I'm Datakage, a SEM (Software Engineering and Management) student based in Austria. 
 
-Currently I'm learning and improving my coding skills day by day - Java, C 
+✧ Currently I'm learning and improving my coding skills day by day - Java, C 
 
-Interested in cyber security 
+✧ Interested in cyber security 
 
 ## A bit about me 
 
-✧ I've got a dream to fulfill The only way to learn is by doing 
+✧ I've got a dream to fulfill The only way to learn is by doing 🍥
 
 ✧ I love cats and anime 
 
