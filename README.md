@@ -6,7 +6,7 @@ Currently I'm learning and improving my coding skills day by day - Java, C
 
 Interested in cyber security 
 
-<strong> A bit about me 
+##A bit about me 
 
 ✧ I've got a dream to fulfill The only way to learn is by doing 
 
